@@ -1,0 +1,1 @@
+Translation of foreign objects, more in line with Taiwan
